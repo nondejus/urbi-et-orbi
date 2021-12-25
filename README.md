@@ -1,2 +1,0 @@
-# dutch-masters
-vernietigingskamp
